@@ -15,7 +15,9 @@ Here are some ideas to get you started:
 
 
 
+<br>
 
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=MaheraFurniturewala&label=Profile%20views&color=0e75b6&style=flat" alt="MaheraFurntiturewala" /> </p>
 
 # Productivity Stats📈:
 <table>
