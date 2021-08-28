@@ -15,7 +15,9 @@
 
 - 📫 How to reach me **maherafurniturewala1111@gmail.com**
 
-- ⚡ Fun fact **I can talk all day**
+
+
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
